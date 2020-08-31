@@ -8,4 +8,4 @@
 - 😄 Pronouns: Tachibana / Ray / M.C. / Mc
 - 💕 Love : Polka 🎪
 
-
+![Imgur](https://i.imgur.com/2xC8fKy.jpg)
