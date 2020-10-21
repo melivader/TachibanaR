@@ -5,7 +5,7 @@
 - 👯 I’m looking to collaborate on Unity game project
 - 🤔 I’m looking for help with Unity
 - 📫 How to reach me: just email me
-- 😄 Pronouns: Tachibana / Ray / M.C. / Mc
+- 😄 Pronouns:  Ray / M.C.
 - 💕 Love : Polka 🎪
 
 ![Imgur](https://i.imgur.com/2xC8fKy.jpg)
